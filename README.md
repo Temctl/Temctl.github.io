@@ -1,1 +1,1 @@
-Temuulen Ulziisaikhan Githun!
+Temuulen Ulziisaikhan Github!
