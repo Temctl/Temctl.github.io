@@ -1,1 +1,0 @@
-Temuulen Ulziisaikhan Github!
